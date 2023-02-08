@@ -12,3 +12,4 @@ who we are
 your mom
 
 ew stinky bitch
+u stinky
